@@ -1,0 +1,1 @@
+# Total-yearly-living-costs-and-fees-2023-by-Country-in-Europe
